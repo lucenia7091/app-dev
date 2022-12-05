@@ -16,7 +16,9 @@
 	
   *Wednesday stumbles on a secret society. During Outreach Day, Nevermore's outcasts mingle with Jericho's normies in Pilgrim World. Fudge, anyone?*
   
+  
 -I love the cold and emotionless Wednesday personality.
+
 -It is very intiresting movie series. I already watched it in animated, but I did not expect the twist in this remake.
 
 ---You can watch it here 
