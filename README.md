@@ -6,9 +6,9 @@
 
 	1. Episode:  **Wednesday's Child Is Full of Woe**
   *When a deliciously wicked prank gets Wednesday expelled, her parents ship her off to Nevermore Academy, the boarding school where they fell in love.*
-  2. Episode: **Woe Is the Loneliest Number**
+  	2. Episode: **Woe Is the Loneliest Number**
   *The sheriff questions Wednesday about the night's strange happenings. Later, Wednesday faces off against a fierce rival in the cutthroat Poe Cup race. *
-  3. Episode: **Friend or Woe**
+  	3. Episode: **Friend or Woe**
   *Wednesday stumbles on a secret society. During Outreach Day, Nevermore's outcasts mingle with Jericho's normies in Pilgrim World. Fudge, anyone?*
   
 -I love the cold and emotionless Wednesday personality.
