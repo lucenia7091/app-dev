@@ -4,7 +4,7 @@
 
 > Smart, sarcastic and a little dead inside, Wednesday Addams investigates a murder spree while making new friends — and foes — at Nevermore Academy.
 
-	1. Episode:  **Wednesday's Child Is Full of Woe**
+	1. Episode:  Wednesday's Child Is Full of Woe
 	
   *When a deliciously wicked prank gets Wednesday expelled, her parents ship her off to Nevermore Academy, the boarding school where they fell in love.*
   	2. Episode: **Woe Is the Loneliest Number**
