@@ -22,8 +22,8 @@
 -It is very intiresting movie series. I already watched it in animated, but I did not expect the twist in this remake.
 
 ---You can watch it here 
-[title]([https://www.example.com](https://www.netflix.com/ph-en/title/81231974)
+[Wednesday]([https://www.example.com](https://www.netflix.com/ph-en/title/81231974)
 
 
 
-![alt text]([image.jpg](https://upload.wikimedia.org/wikipedia/en/6/66/Wednesday_Netflix_series_poster.png)
+!([image.jpg](https://upload.wikimedia.org/wikipedia/en/6/66/Wednesday_Netflix_series_poster.png)
